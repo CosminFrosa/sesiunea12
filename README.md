@@ -1,0 +1,2 @@
+# sesiunea12
+ 
